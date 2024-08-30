@@ -59,3 +59,5 @@ Prof.  Daniel Ferreira de Barros Junior. - ([danielf@uni9.pro.br](mailto:danielf
 
   2224108605 | Pedro Henrique Rosalem Ferreira
 
+  2224110465 | Larissa Coelho de Souza
+
